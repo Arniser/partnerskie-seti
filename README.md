@@ -1,0 +1,2 @@
+# partnerskie-seti
+partnerskie-seti
